@@ -1,1 +1,1 @@
-# Curriculum Vitae/Resume de Sofia Alvarez
+# Curriculum Vitae Sofia Alvarez
